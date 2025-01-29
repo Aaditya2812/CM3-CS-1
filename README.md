@@ -24,3 +24,7 @@ I'm an undergraduate student, with a strong interest in **business, investing, a
 - 📩 Email: aadityabaradiya@gmail.com
 
 Looking forward to learning, collaborating, and growing! 🚀  
+
+## 🎉 Course Completed!  
+I have successfully completed this course. Thank you for the guidance! 🚀
+
